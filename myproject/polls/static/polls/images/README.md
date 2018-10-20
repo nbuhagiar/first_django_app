@@ -1,0 +1,1 @@
+The image used for 'background.gif' was created by Wikiscient [CC BY-SA 3.0  (https://creativecommons.org/licenses/by-sa/3.0)], via Wikimedia Commons. It's page URL is https://commons.wikimedia.org/wiki/File:Spinning_globe.gif and it's file URL is https://upload.wikimedia.org/wikipedia/commons/a/a6/Spinning_globe.gif
